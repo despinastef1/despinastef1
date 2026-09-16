@@ -1,4 +1,4 @@
 ## Hi there👋
 
-My name is Despina and I am happy to be here! If you want to know more about me, visit my [LinkedIn](https://www.linkedin.com/in/despina-stefan-8138993).
+My name is Despina and I am happy to be here! If you want to know more about my work interests, visit my [LinkedIn](https://www.linkedin.com/in/despina-stefan-8138993).
 
